@@ -61,7 +61,7 @@ You can use the following accounts to log in and explore the features:
 
 ## 🙋‍♂️ Need Help or Have Suggestions?
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/vibhav30/) for queries, suggestions, or collaboration ideas!
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/vibhavgupta30/) for queries, suggestions, or collaboration ideas!
 
 ---
 
